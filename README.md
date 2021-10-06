@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Thunked
+- 👀 I’m interested in TTRPGs like DND5e, DMing, Worlbuilding and Writing.
+- 🌱 I’m currently learning, a lot of things...
+- 📫 You can reach me at Thunked#6698 on Discord, or email me at official.thunked@gmail.com
